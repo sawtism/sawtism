@@ -1,1 +1,1 @@
-![alt text]([image.jpg](https://cdn.discordapp.com/attachments/1072995031713062952/1326921934323318896/IMG_20250109_173240.jpg?ex=67812fda&is=677fde5a&hm=1bf0e7cd166267a64afefacece3d1634d7540289e9bcea5c52474872c1709752&))
+wip

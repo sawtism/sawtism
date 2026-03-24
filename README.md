@@ -1,4 +1,3 @@
-<img width="1000" height="726" alt="image" src="https://github.com/user-attachments/assets/5c1a14d1-9ea6-4fa8-b1cd-59aed58ec6d9" />
-@T3ARD30P yo lanna cancellation doc drops 2NITE for this
-<img width="1162" height="477" alt="femboy bangers" src="https://github.com/user-attachments/assets/403f9dee-a556-461b-b5d0-de2d33601004" />
-
+<img align="left" width="200" height="250" alt="lukeytv" src="https://github.com/user-attachments/assets/159d486a-97d5-4060-9763-9ae949b40a3f" />
+semi-active on pony town. spreading pangfies and pangicraft propaganda all over my socials yoo! :^)
+he/him male. taken ♡ i love you hound you chud --feel free to approach me, i'm offtab most of the time and don't gaf about c&h unless specified otherwise. i hardly use tone tags so please make it known that you need me to use them when interacting

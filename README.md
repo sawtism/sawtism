@@ -1,2 +1,1 @@
-<img align="left" width="200" height="250" alt="lukeytv" src="https://github.com/user-attachments/assets/159d486a-97d5-4060-9763-9ae949b40a3f" />
-hi my name is stanislaw. im inactive on pony town & github by extent but i do pop by to flw back (not spam accounts) feel free to sign my ata
+inactive on github & pony town , sign ata i check in every now and then
